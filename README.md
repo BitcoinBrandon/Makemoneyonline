@@ -1,2 +1,1 @@
-# Makemoneyonline
-Learn how to make money online for free
+Make money online for free
